@@ -1,4 +1,4 @@
-## Hi there 👋
+ i want to be the very best when it comes to creating resourceful programs, programs that help me daily, models that are unmatched. systems that build other systems.
 
 <!--
 **charisgit/charisgit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
